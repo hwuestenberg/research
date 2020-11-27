@@ -1,2 +1,3 @@
 # research
-Research work/these/publications
+Abstacts for publications/theses
+Request full-access via pm
